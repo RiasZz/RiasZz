@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on SnowyNetwork<br>📫 How to reach me rias@snowynetwork.ir<br>⚡ Fun fact Femboys aren't gay :3
+🔭 I’m currently working on SnowyNetwork<br>📫 How to reach me rias@snowynetwork.ir
 
 
 ## 🌐 Socials:
